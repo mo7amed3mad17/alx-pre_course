@@ -1,1 +1,1 @@
-New dir was added
+Up to date now
